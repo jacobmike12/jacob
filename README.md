@@ -1,1 +1,7 @@
-# jacob
+	
+Mens Kilts for sale | Buy Utility, Tartan, Hybrid,Denim & Leather Kilt – Fashion Kilt
+
+Shop our Modern collection of  Kilt For Men Sale and say Goodbye to your old style kilts. We have Premium Quality Fashion kilts including Denim, Stonewashed, and Leather Kilts
+Fashion evolves over time. That can be said about any subgroup of style, and that can certainly be said about kilts. Kilts first began as garments that were exclusive to the Scottish Highlands, and they were all made out of tartan. The tartan typically represented the family name or clan to which the kilt wearer belonged, and that was about as diverse as they got. As time passes and kilts become a more common manner of dress among people of all ages, so has the styles of kilts that are available.
+There are many different occasions where wearing a kilt is appropriate. It is a common style of dress in Scotland where they tend to be worn almost anywhere, but across the world, there are many other options for wearing your kilt. One of the most common places to wear kilts is at a wedding. Oftentimes, these kilts will be worn with full Highlands dress and/or Prince Charlie jackets, as this gives the kilt a more formal appearance and elevates its look.
+Here at Fashion Kilt, we know the importance of the time-honored tradition of kilt wearing, but we also know that having more options for kilt styles is important to the modern day kilt wearer. We offer a huge variety of kilts for sale to fit anyone's needs, no matter how you are hoping to change your selection of  kilts or what styles you are interested in.
